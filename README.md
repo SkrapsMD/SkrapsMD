@@ -1,10 +1,9 @@
-======================================================================================================================================
+
                                                ______                      __  ______ 
                                               / __/ /__ _______ ____  ___ /  |/  / _ \
                                              _\ \/  '_// __/ _ `/ _ \(_-</ /|_/ / // /
                                             /___/_/\_\/_/  \_,_/ .__/___/_/  /_/____/ 
                                                               /_/                     
-======================================================================================================================================
 
 Hey There! I'm Michael Dwight Sparks (SkrapsMD). To start with, no I'm not a M.D., I am just unoriginal and happen to have first and middle initials that let me do fun things like SparkySparksMD, and, as you see here SkrapsMD (these are the usernames for all of my 'professional' accounts, if its not one of those, or linked here, its probably not me!
 
