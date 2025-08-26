@@ -14,7 +14,7 @@
 
 No, I'm not a doctor—just blessed with initials that let me play with usernames like SparkySparksMD and SkrapsMD. (If you see me elsewhere online and it's not one of these handles, it's probably not actually me!)
 
-I'm a larval-stage economist applying to PhD programs this fall, currently working as a Research Analyst at the Federal Reserve Bank of Atlanta with [Salomé Baslandze](https://sites.google.com/site/sabaslandze/home) and [Lei Fang](https://sites.google.com/site/leifang/). My research focuses on innovation, industrial policy, and macro-labor.
+I'm a larval-stage economist applying to PhD programs this fall, currently working as a Research Analyst at the Federal Reserve Bank of Atlanta with [Salomé Baslandze](https://sites.google.com/site/sabaslandze/home) and [Lei Fang](https://sites.google.com/site/leifang/). My research focuses on innovation, industrial policy, and firm dynamics.
 
 Here's some work I've done with my Atlanta Fed colleagues:
 
